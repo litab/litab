@@ -1,4 +1,4 @@
-## Welcome I'm Lita (She/Her)! 👋
+## Welcome, I'm Lita (She/Her)! 👋
 
 
 <!--
